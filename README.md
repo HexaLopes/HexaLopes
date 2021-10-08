@@ -1,4 +1,4 @@
-## Olá! Eu sou o Hexa Lopes 👋
+## Olá! Me chamo Hexa Lopes 👋
 
 
 <div align="center">
